@@ -1,0 +1,1 @@
+Buna benzer bir çok içeriği bu adreste bulabilirsiniz. Bu adreste buna benzer pek çok içerik bulabilirsiniz. https://codepen.io/ahmet-demirci-the-bashful Faydalı olabildiysem ne mutlu bana. Faydalı olduğum için mutluyum.
